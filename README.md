@@ -1,4 +1,4 @@
-# Balolos AI Tools
+# AI Tools & SaaS Reviews
 
 Affiliate content site — generated and managed by Menace.
 
